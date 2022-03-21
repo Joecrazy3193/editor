@@ -1,5 +1,5 @@
 # Hello there! 
-We're looking for an editor who can bring creative vision + ideas to the kitbogashow team. 
+We're looking TO PAY for an editor who can bring creative vision + ideas to the kitbogashow team. 
 
 Our hope, is to find someone who can review "rough" footage and come up with some direction for it:
 - what would the focus of the edit be?
