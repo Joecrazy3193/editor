@@ -7,8 +7,10 @@ Our hope, is to find someone who can review "rough" footage and come up with som
 - what things might you "insert" into the edit (post)
 - what might you title it
 
-If you are interested we are looking for someone to review this call and submit their ideas to:
+If you are interested we are looking for someone to review this call:
 https://drive.protonmail.com/urls/B3G062MZN4#CWYobxWiv0vC
+
+email stuff here:
 hello@kitbogashow.com 
 
 You don't need to edit the entire call, but if you can show some examples of your editing or a short edit of this call that'd be fine. 
